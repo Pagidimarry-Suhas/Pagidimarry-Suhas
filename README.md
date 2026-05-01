@@ -1,7 +1,7 @@
 # Pagidimarry Suhas
 
 **B.Tech Information Technology student** | Hyderabad, India  
-📧 suhaspagidimarry@gmail.com • 📞 +91-8978575174 • [LinkedIn](#) • [GitHub](https://github.com/Pagidimarry-Suhas)
+📧 suhaspagidimarry@gmail.com • 📞 +91-8978575174 • [LinkedIn](#)
 
 ---
 
