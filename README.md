@@ -1,5 +1,3 @@
----
-
 # Pagidimarry Suhas
 
 **B.Tech Information Technology student** | Hyderabad, India  
